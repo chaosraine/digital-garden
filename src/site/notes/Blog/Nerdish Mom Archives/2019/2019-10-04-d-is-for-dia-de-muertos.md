@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-04-d-is-for-dia-de-muertos/","title":"D is for Día de Muertos"}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-04-d-is-for-dia-de-muertos/","title":"D is for Día de Muertos","noteIcon":""}
 ---
 
 
