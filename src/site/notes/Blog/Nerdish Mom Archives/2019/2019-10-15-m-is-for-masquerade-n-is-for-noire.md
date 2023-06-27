@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-15-m-is-for-masquerade-n-is-for-noire/","title":"2-in-1: M is for Masquerade/N is for Noire"}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-15-m-is-for-masquerade-n-is-for-noire/","title":"2-in-1: M is for Masquerade/N is for Noire","noteIcon":""}
 ---
 
 
