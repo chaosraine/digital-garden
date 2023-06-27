@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-05-e-is-for-eerie/","title":"E is for Eerie"}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-05-e-is-for-eerie/","title":"E is for Eerie","noteIcon":""}
 ---
 
 
