@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-06-f-is-for-frankenstein-or-the-girl-who-invented-sci-fi/","title":"F is for Frankenstein OR The Girl who invented sci-fi"}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-06-f-is-for-frankenstein-or-the-girl-who-invented-sci-fi/","title":"F is for Frankenstein OR The Girl who invented sci-fi","noteIcon":""}
 ---
 
 
