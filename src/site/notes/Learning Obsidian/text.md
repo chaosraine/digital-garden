@@ -1,4 +1,4 @@
 ---
-{"dg-publish":true,"permalink":"/learning-obsidian/text/"}
+{"dg-publish":true,"permalink":"/learning-obsidian/text/","noteIcon":""}
 ---
 
