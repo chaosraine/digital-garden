@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-09-h-is-for-haunted-house-in-a-box/","title":"H is for Haunted House In-A-Box","tags":["building","crafting","halloween","homeschool"]}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-09-h-is-for-haunted-house-in-a-box/","title":"H is for Haunted House In-A-Box","tags":["building","crafting","halloween","homeschool"],"noteIcon":""}
 ---
 
 
