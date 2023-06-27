@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-12-k-is-for-karaoke-a-halloween-sing-along/","title":"K is for Karaoke ~ a Halloween Sing-along!"}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-12-k-is-for-karaoke-a-halloween-sing-along/","title":"K is for Karaoke ~ a Halloween Sing-along!","noteIcon":""}
 ---
 
 
