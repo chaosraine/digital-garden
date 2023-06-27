@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-11-j-is-for-jack-o-lantern/","title":"J is for Jack-o-Lantern ~and~ the Problem with Printers"}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-11-j-is-for-jack-o-lantern/","title":"J is for Jack-o-Lantern ~and~ the Problem with Printers","noteIcon":""}
 ---
 
 
