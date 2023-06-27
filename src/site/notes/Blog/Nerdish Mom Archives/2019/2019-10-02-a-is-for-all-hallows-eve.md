@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-02-a-is-for-all-hallows-eve/","title":"Day 1: A is For All Hallows Eve"}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-02-a-is-for-all-hallows-eve/","title":"Day 1: A is For All Hallows Eve","noteIcon":""}
 ---
 
 
