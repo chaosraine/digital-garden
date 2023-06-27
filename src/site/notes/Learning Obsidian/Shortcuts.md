@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/learning-obsidian/shortcuts/"}
+{"dg-publish":true,"permalink":"/learning-obsidian/shortcuts/","noteIcon":""}
 ---
 
 ## Known Shortcuts
