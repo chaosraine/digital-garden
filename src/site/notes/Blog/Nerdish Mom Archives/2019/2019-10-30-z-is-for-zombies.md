@@ -9,8 +9,6 @@ Undead like me.
 
 I've been into zombies since college, when I watched the 1968 George Romero classic _The Night of the Living Dead_. We followed it up with the sequels, then a few years went by and I saw _28 Days Later_. But the truth is when someone says "zombie" I still immediately picture that iconic scene in _The Night of the Living Dead_ when the zombies are coming for the female lead and she just… walks past them, crying her eyes out. 
 
-![Z is for Zombies](/img/user/Assets/chaoticorganized.com_.png)
-
 ## **Z is for Zombies**
 
 So that’s my view of a zombie. Not fast. Hell - not even in color! Just a bunch of extras stumbling along in slow motion looking for brains.
