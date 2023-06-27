@@ -1,4 +1,4 @@
 ---
-{"dg-publish":true,"permalink":"/private/templates/blog-post-template/"}
+{"dg-publish":true,"permalink":"/private/templates/blog-post-template/","noteIcon":""}
 ---
 
