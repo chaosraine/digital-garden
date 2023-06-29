@@ -11,97 +11,97 @@ Many of my posts will delve deeper into the Halloween homeschool ideas listed be
 
 ![31 posts of october - advertising the 31 halloween homeschool ideas](/img/user/Assets/Attachments/Copy-of-31-posts-of-October.png)
 
-### 1\. [All Hallows' Eve](https://chaoticorganized.com/2019/10/01/a-is-for-all-hallows-eve/)
+### 1. [[Blog/Nerdish Mom Archives/2019/2019-10-02-a-is-for-all-hallows-eve\|All Hallow's Eve]]
 
 Talk with your kids about the basis of this holiday (which yes, is still a month away) - there are several holidays related to Halloween which we’ll cover to learn some history and culture
 
-### 2\. [Bobbing for apples](https://chaoticorganized.com/2019/10/02/b-is-for-bobbing-for-apples/)
+### 2. [[Blog/Nerdish Mom Archives/2019/2019-10-02-b-is-for-bobbing-for-apples\|Bobbing for Apples]]
 
-### 3\. [Campfire stories](https://chaoticorganized.com/2019/10/03/c-is-for-campfire-stories)
+### 3. [[Blog/Nerdish Mom Archives/2019/2019-10-03-c-is-for-campfire-stories\|Campfire Stories]]
 
-### 4\. [Dia de los Muertos](https://chaoticorganized.com/2019/10/04/d-is-for-dia-de-muertos/)
+### 4. [[Blog/Nerdish Mom Archives/2019/2019-10-04-d-is-for-dia-de-muertos\|Dia de Muertos]]
 
-### 5\. [Eerie](https://www.chaoticorganized.com/2019/10/05/e-is-for-eerie/)
+### 5. [[Blog/Nerdish Mom Archives/2019/2019-10-05-e-is-for-eerie\|Eerie]]
 
 Learn about synonyms, starting with a bunch of words that all mean “spooky.”
 
-### 6\. [Frankenstein's laboratory](https://www.chaoticorganized.com/2019/10/06/f-is-for-frankenstein-or-the-girl-who-invented-sci-fi/)
+### 6. [[Blog/Nerdish Mom Archives/2019/2019-10-06-f-is-for-frankenstein-or-the-girl-who-invented-sci-fi\|Frankenstein's Lab]]
 
 A great opportunity for science experiments!
 
-### 7\. [Great pumpkin](https://www.chaoticorganized.com/2019/10/07/g-is-for-the-great-pumpkin/) 
+### 7. [[Blog/Nerdish Mom Archives/2019/2019-10-07-g-is-for-the-great-pumpkin\|Great Pumpkin]]
 
-### 8\. [Haunted House](https://www.chaoticorganized.com/2019/10/09/h-is-for-haunted-house-in-a-box/)
+### 8. [[Blog/Nerdish Mom Archives/2019/2019-10-09-h-is-for-haunted-house-in-a-box\|Haunted House]]
 
 Like a blanket fort, but with a lot more spoopy! If you don’t have the space for building your own haunted house, consider either a diorama or at least cooking up some eyeballs (peeled grapes) and entrails 
 
-### 9\. [Igor & Ichor](https://www.chaoticorganized.com/2019/10/10/i-is-for-igors-ichor-and-innards/)
+### 9. [[Blog/Nerdish Mom Archives/2019/2019-10-10-i-is-for-igors-ichor-and-innards\|Igor and Ichor]]
 
 Not that I need an opportunity to make slime, but I’ll share my favorite type with you, and why!
 
-### 10\. [Jack O lantern](https://www.chaoticorganized.com/2019/10/11/j-is-for-jack-o-lantern/) (printable)
+### 10. [[Blog/Nerdish Mom Archives/2019/2019-10-11-j-is-for-jack-o-lantern\|Jack-o-Lantern]] (printable)
 
-### 11\. [Karaoke](https://www.chaoticorganized.com/2019/10/12/k-is-for-karaoke-a-halloween-sing-along/) (Spotify playlist) 
+### 11. [[Blog/Nerdish Mom Archives/2019/2019-10-12-k-is-for-karaoke-a-halloween-sing-along\|Karaoke]](Spotify playlist) 
 
-### 12\. [Legend of Sleepy Hollow](https://www.chaoticorganized.com/2019/10/14/l-is-for-the-legend-of-sleepy-hollow/)
+### 12. [[Blog/Nerdish Mom Archives/2019/2019-10-14-l-is-for-the-legend-of-sleepy-hollow\|Legend of Sleepy Hollow]]
 
-### 13\. [Masquerade](https://www.chaoticorganized.com/2019/10/15/m-is-for-masquerade-n-is-for-noire/)
+### 13. [[Blog/Nerdish Mom Archives/2019/2019-10-15-m-is-for-masquerade-n-is-for-noire\|Masquerade]]
 
 Make your own masks, either in preparation for Halloween or to host a home masquerade
 
-### 14\. [Noir](https://www.chaoticorganized.com/2019/10/15/m-is-for-masquerade-n-is-for-noire/)
+### 14. [[Blog/Nerdish Mom Archives/2019/2019-10-17-n-is-for-ennui\|Nightmare Before Christmas]]
 
-### 15\. [October and other oddities](https://www.chaoticorganized.com/2019/10/18/o-is-for-october-and-other-oddities/)
+### 15. [[Blog/Nerdish Mom Archives/2019/2019-10-18-o-is-for-october-and-other-oddities\|October]]
 
 A chance to cover current events or other happenings this month (no, not Columbus day)
 
-### 16\. [Pumpkin patch](https://www.chaoticorganized.com/2019/10/19/p-is-for-the-pumpkin-patch/)
+### 16. [[Blog/Nerdish Mom Archives/2019/2019-10-19-p-is-for-the-pumpkin-patch\|Pumpkin Patch]]
 
 If you have a pumpkin patch nearby then get out and go! Otherwise visit the grocery store to pick one to carve. Since the weather in my city is looking like it might want to stay in the 90s well into October, the actual carving may want to wait until closer to trick-or-treating
 
-### 17\. [Quark](https://www.chaoticorganized.com/2019/10/20/q-is-for-quark/)
+### 17. [Quark](https://www.chaoticorganized.com/2019/10/20/q-is-for-quark/)
 
-### 18\. [Recipes](https://www.chaoticorganized.com/2019/10/21/r-is-for-recipes/)
+### 18. [[Blog/Nerdish Mom Archives/2019/2019-10-21-r-is-for-recipes\|Recipes]]
 
 pumpkin.
 
-### 19\. [Samhain](https://www.chaoticorganized.com/2019/10/23/s-is-for-samhain/)
+### 19. [[Blog/Nerdish Mom Archives/2019/2019-10-23-s-is-for-samhain\|Samhain]]
 
-### 20\. [Trick or treat](https://www.chaoticorganized.com/2019/10/24/t-is-for-trick-or-treating/)
+### 20. [[Blog/Nerdish Mom Archives/2019/2019-10-24-t-is-for-trick-or-treating\|Trick or Treat]]
 
 Learn the Origin of trick-or-treating and turn it into an at-home game! This is especially helpful if you have young kids who don’t really understand the concept yet.  
 
-### 21\. [Unicorns](https://www.chaoticorganized.com/2019/10/25/u-is-for-unicorns/)
+### 21. [Unicorns](https://www.chaoticorganized.com/2019/10/25/u-is-for-unicorns/)
 
-### 22\. [Vampires](https://www.chaoticorganized.com/2019/10/26/v-is-for-vampires/)
+### 22. [Vampires](https://www.chaoticorganized.com/2019/10/26/v-is-for-vampires/)
 
 Did you know there’s some speculation that the concept of vampires may have originated from the symptoms of rabies? No? What else don’t you know about vampires? Let’s find out together!
 
-### 23\. [Werewolves](https://www.chaoticorganized.com/2019/10/27/w-is-for-werewolves/)
+### 23. [Werewolves](https://www.chaoticorganized.com/2019/10/27/w-is-for-werewolves/)
 
-### 24\. [X-ray](https://www.chaoticorganized.com/2019/10/28/x-is-for-x-rays/)
+### 24. [X-ray](https://www.chaoticorganized.com/2019/10/28/x-is-for-x-rays/)
 
 Look at skeletons and learn some science!
 
-### 25\. [Yeti](https://www.chaoticorganized.com/2019/10/29/y-is-for-yeti/)
+### 25. [Yeti](https://www.chaoticorganized.com/2019/10/29/y-is-for-yeti/)
 
-### 26\. [Zombies](https://www.chaoticorganized.com/2019/10/30/z-is-for-zombies/)
+### 26. [Zombies](https://www.chaoticorganized.com/2019/10/30/z-is-for-zombies/)
 
 ## Dress up days!
 
 In the lead-up to Halloween, let’s dress up every day! Who says homeschoolers have to miss out on spirit week?
 
-### 27\. Superhero
+### 27. Superhero
 
-### 28\. Silly hats
+### 28. Silly hats
 
-### 29\. School Colors
+### 29. School Colors
 
 Let the kids pick their favorite color and dress all in one shade - or if you’re like us, pick them all and go rainbow head to toe.
 
-### 30\. Book character
+### 30. Book character
 
-### 31\. Halloween costumes!
+### 31. Halloween costumes!
 
 In other, more personal news, My Gal Friday made a last minute-ish change of plans for her Halloween costume:
 
