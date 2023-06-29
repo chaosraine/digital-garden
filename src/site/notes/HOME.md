@@ -18,3 +18,4 @@
 - ### [[Blog/Chaotic Organized Blog\|Chaotic Organized Blog]]
   [Chaotic Organized Blog](https://chaoticorganized.com/blog/)
   Find general advice about building systems to keep your mind, time, and space organized, but in a way that works for your chaotic brain.
+
