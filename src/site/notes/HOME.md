@@ -10,12 +10,12 @@
 
 
 
-- ### [[Podcast/Ex-Gifted Podcast\|Ex-Gifted Podcast]]
+- ### [[Ex-Gifted Podcast/Ex-Gifted Podcast\|Ex-Gifted Podcast]]
   [Ex Gifted Podcast](https://exgifted.com/)
   If you were an exceptional child who finds yourself struggling to get by as an adult, then check out the Ex-Gifted podcast to learn how to deal with former gifted kid burnout.
 
 
-- ### [[Blog/Chaotic Organized Blog\|Chaotic Organized Blog]]
+- ### [[Blog/Blog\|Blog]]
   [Chaotic Organized Blog](https://chaoticorganized.com/blog/)
   Find general advice about building systems to keep your mind, time, and space organized, but in a way that works for your chaotic brain.
 
