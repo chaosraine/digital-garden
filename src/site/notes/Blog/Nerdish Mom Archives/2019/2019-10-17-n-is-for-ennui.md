@@ -62,7 +62,7 @@ Additionally, it’s his problem from way back at the beginning. He began to hav
 
 Taking out all the emotion is the absolute very last thing Jack Skellington needs to do. He needs to practice some mindfulness, sit with his feelings, and ask himself what it is he actually needs to fill that hole. Not go run off and assume that the first thing he finds might as well be crammed in there.
 
-### 5\. "**You know, I think this Christmas thing is not as tricky as it seems. And why should they have all the fun? It should belong to anyone. Not anyone, in fact, but me! Why, I could make a Christmas tree. And there's no reason I can find I couldn't handle Christmas time. I bet I could improve it too, and that's exactly what I'll do...**"
+### 5. "**You know, I think this Christmas thing is not as tricky as it seems. And why should they have all the fun? It should belong to anyone. Not anyone, in fact, but me! Why, I could make a Christmas tree. And there's no reason I can find I couldn't handle Christmas time. I bet I could improve it too, and that's exactly what I'll do...**"
 
 I don’t feel like this one needs commentary.
 
