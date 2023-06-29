@@ -9,7 +9,7 @@ Many of my posts will delve deeper into the Halloween homeschool ideas listed be
 
 ## 31 Halloween Homeschool ideas/activities 
 
-![31 posts of october - advertising the 31 halloween homeschool ideas](/img/user/Assets/Copy-of-31-posts-of-October.png)
+![31 posts of october - advertising the 31 halloween homeschool ideas](/img/user/Assets/Attachments/Copy-of-31-posts-of-October.png)
 
 ### 1\. [All Hallows' Eve](https://chaoticorganized.com/2019/10/01/a-is-for-all-hallows-eve/)
 
