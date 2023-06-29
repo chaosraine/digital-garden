@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-21-r-is-for-recipes/","title":"R is for Recipes","noteIcon":""}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-21-r-is-for-recipes/","title":"R is for Recipes","tags":["recipes"],"noteIcon":""}
 ---
 
 
