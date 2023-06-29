@@ -9,7 +9,7 @@ And SCARY Skeletons!
 
 Unfortunately my gal Friday pretty much already knows all about x-rays and has seen inside her body way too many times for a kid her age, but that doesn’t mean she doesn’t like a good old-fashioned skeleton (of the monster variety)!
 
-![x is for x-rays](/img/user/Assets/X-is-for-X-Rays.png)
+![x is for x-rays](/img/user/Assets/Attachments/X-is-for-X-Rays.png)
 
 ## **X is for X-rays**
 
