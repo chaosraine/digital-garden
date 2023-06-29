@@ -7,7 +7,7 @@ Gameschooling for all
 
 * * *
 
-Someone forgot to tell this hellish cold I've got that even though Halloween is still a week away, Halloween events start before the 31st.
+Someone forgot to tell this hellish cold I've got that even though Halloween is still a week away, Halloween events start before the 31st. 
 
 Not only do I feel tons of mom-guilt for having missed several festivals and trunk-or-treats already (including the one at the YMCA which my gal Friday would have loved), but I haven't even been able to get her costume together yet. And I put it off so long that she managed to delete my own entire costume I'd been assembling in my Amazon cart. 
 
