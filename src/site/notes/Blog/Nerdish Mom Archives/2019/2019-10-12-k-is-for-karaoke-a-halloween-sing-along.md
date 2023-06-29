@@ -7,7 +7,7 @@ Today's post is something simple. But really fun.
 
 We are going to take advantage of the season. And listen to some spooky songs. It's a Halloween sing-along!
 
-![K is for Karaoke - A Halloween Sing-Along](/img/user/Assets/K-is-for-Karaoke.png)
+![K is for Karaoke - A Halloween Sing-Along](/img/user/Assets/Attachments/K-is-for-Karaoke.png)
 
 ### A Halloween Sing-Along!
 
