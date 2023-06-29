@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/private/page/2021-10-13-roleplanning/","title":"Roleplanning","noteIcon":""}
+{"dg-publish":true,"dg-path":"/page/2021-10-13-roleplanning.md","permalink":"//page/2021-10-13-roleplanning/","title":"Roleplanning","noteIcon":""}
 ---
 
 
