@@ -71,21 +71,21 @@ pumpkin.
 
 Learn the Origin of trick-or-treating and turn it into an at-home game! This is especially helpful if you have young kids who don’t really understand the concept yet.  
 
-### 21. [Unicorns](https://www.chaoticorganized.com/2019/10/25/u-is-for-unicorns/)
+### 21. [[Blog/Nerdish Mom Archives/2019/2019-10-25-u-is-for-unicorns\|Unicorns]]
 
-### 22. [Vampires](https://www.chaoticorganized.com/2019/10/26/v-is-for-vampires/)
+### 22. [[Blog/Nerdish Mom Archives/2019/2019-10-26-v-is-for-vampires\|Vampires]]
 
 Did you know there’s some speculation that the concept of vampires may have originated from the symptoms of rabies? No? What else don’t you know about vampires? Let’s find out together!
 
-### 23. [Werewolves](https://www.chaoticorganized.com/2019/10/27/w-is-for-werewolves/)
+### 23. [[Blog/Nerdish Mom Archives/2019/2019-10-27-w-is-for-werewolves\|Werewolves]]
 
-### 24. [X-ray](https://www.chaoticorganized.com/2019/10/28/x-is-for-x-rays/)
+### 24. [[Blog/Nerdish Mom Archives/2019/2019-10-28-x-is-for-x-rays\|X-rays]]
 
 Look at skeletons and learn some science!
 
-### 25. [Yeti](https://www.chaoticorganized.com/2019/10/29/y-is-for-yeti/)
+### 25. [[Blog/Nerdish Mom Archives/2019/2019-10-29-y-is-for-yeti\|Yeti]]
 
-### 26. [Zombies](https://www.chaoticorganized.com/2019/10/30/z-is-for-zombies/)
+### 26. [[Blog/Nerdish Mom Archives/2019/2019-10-30-z-is-for-zombies\|Zombies]]
 
 ## Dress up days!
 
