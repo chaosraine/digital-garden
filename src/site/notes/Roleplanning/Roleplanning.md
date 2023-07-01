@@ -7,35 +7,20 @@
 
 What is Roleplanning?
 
-[Learn More
-
-](#what-is-roleplanning)
+[Learn More](#what-is-roleplanning)
 
 ![](/img/user/Assets/Attachments/IMG_0639-1024x773.jpg)
 
-[
-
-### FAQ
-
+### [[Roleplanning/Roleplanning#Frequently asked questions\|FAQ]]
 Everything you've been wondering about Roleplanning
 
 
-
-](#FAQ)
-
-[
-
-### Tutorials
+### [[Roleplanning/Roleplanning#Tutorials\|Tutorials]]
 
 Watch my session zero, learn how to level up, learn how to use the system in your paper planner, and more...
 
 
-
-](#tutorials)
-
-[
-
-### Shop
+### [Shop](https://ko-fi.com/reneliza/shop)
 
 Pre-order the Roleplanning starter bundle for 2022.
 
