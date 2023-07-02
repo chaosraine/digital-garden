@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/z-is-for-zombies/","title":"Z is for Zombies","noteIcon":""}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/z-is-for-zombies/","title":"Z is for Zombies","noteIcon":"","created":"","updated":""}
 ---
 
 
