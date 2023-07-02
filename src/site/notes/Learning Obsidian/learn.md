@@ -1,4 +1,4 @@
 ---
-{"dg-publish":true,"permalink":"/learning-obsidian/learn/","noteIcon":""}
+{"dg-publish":true,"permalink":"/learning-obsidian/learn/","noteIcon":"","created":"","updated":""}
 ---
 
