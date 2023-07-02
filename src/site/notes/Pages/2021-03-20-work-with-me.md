@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"dg-permalink":"work-with-me","permalink":"/work-with-me/","title":"Work with me","noteIcon":""}
+{"dg-publish":true,"dg-permalink":"work-with-me","permalink":"/work-with-me/","title":"Work with me","noteIcon":"","created":"","updated":""}
 ---
 
 
