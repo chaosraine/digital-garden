@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/ex-gifted-podcast/2021/2021-04-02-there-is-no-try/","title":"There is No Try","noteIcon":""}
+{"dg-publish":true,"permalink":"/ex-gifted-podcast/2021/2021-04-02-there-is-no-try/","title":"There is No Try","noteIcon":"","created":"","updated":""}
 ---
 
 
