@@ -19,5 +19,7 @@
 And address your executive dysfunction head on, then [sign up for a consultation chat](https://tidycal.com/chaoticorganized/)! It's text-based and only takes 15-20 minutes. We'll talk about your biggest struggles with executive dysfunction and how I can help. If you're nervous about hour-long phone conversations I GOT YOU! We'll just do a few minutes text chat.
 
 ![Image of a person in a sweater and jeans with chin resting on their knee](/img/user/Assets/Attachments/me in sweater.png)
+```
 <script src="https://asset-tidycal.b-cdn.net//js/embed.js"></script>
 <div id="tidycal-embed" data-path="chaoticorganized/executive-dysfunction-mini-session"></div>
+```
