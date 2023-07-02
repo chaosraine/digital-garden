@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/learning-obsidian/start/","noteIcon":""}
+{"dg-publish":true,"permalink":"/learning-obsidian/start/","noteIcon":"","created":"","updated":""}
 ---
 
 The obvious way to [[Learning Obsidian/learn\|learn]] to use [[Learning Obsidian/Obsidian\|Obsidian]] and the [[Learning Obsidian/Zettelkasten\|Zettelkasten]] system is by using Obsidian and the Zettlkasten system to learn how to use it.
