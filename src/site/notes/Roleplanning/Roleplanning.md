@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/roleplanning/roleplanning/","title":"Roleplanning","noteIcon":""}
+{"dg-publish":true,"permalink":"/roleplanning/roleplanning/","title":"Roleplanning","noteIcon":"","created":"","updated":""}
 ---
 
 
