@@ -59,7 +59,7 @@ A chance to cover current events or other happenings this month (no, not Columbu
 
 If you have a pumpkin patch nearby then get out and go! Otherwise visit the grocery store to pick one to carve. Since the weather in my city is looking like it might want to stay in the 90s well into October, the actual carving may want to wait until closer to trick-or-treating
 
-### 17. [[Blog/Nerdish Mom Archives/2019/Q is for Quark\|Q is for Quark]]
+### 17. [[Blog/Nerdish Mom Archives/2019/Q is for Quark\|Quark]]
 
 ### 18. [[Blog/Nerdish Mom Archives/2019/R is for Recipes\|Recipes]]
 
