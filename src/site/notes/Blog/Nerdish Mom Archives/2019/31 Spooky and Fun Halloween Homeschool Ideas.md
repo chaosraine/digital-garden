@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/31-spooky-and-fun-halloween-homeschool-ideas/","title":"31 Spooky and Fun Halloween Homeschool Ideas Roundup","tags":["halloween","list"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/31-spooky-and-fun-halloween-homeschool-ideas/","title":"31 Spooky and Fun Halloween Homeschool Ideas Roundup","tags":["halloween","list"],"noteIcon":"","created":"","updated":""}
 ---
 
 
@@ -17,69 +17,69 @@ Talk with your kids about the basis of this holiday (which yes, is still a month
 
 ### 2. [[Blog/Nerdish Mom Archives/2019/B is for Bobbing for Apples\|Bobbing for Apples]]
 
-### 3. [[Blog/Nerdish Mom Archives/2019/2019-10-03-c-is-for-campfire-stories\|Campfire Stories]]
+### 3. [[Blog/Nerdish Mom Archives/2019/C is for Campfire Stories\|Campfire Stories]]
 
-### 4. [[Blog/Nerdish Mom Archives/2019/2019-10-04-d-is-for-dia-de-muertos\|Dia de Muertos]]
+### 4. [[Blog/Nerdish Mom Archives/2019/D is for Día de Muertos\|Dia de Muertos]]
 
-### 5. [[Blog/Nerdish Mom Archives/2019/2019-10-05-e-is-for-eerie\|Eerie]]
+### 5. [[Blog/Nerdish Mom Archives/2019/E is for Eerie\|Eerie]]
 
 Learn about synonyms, starting with a bunch of words that all mean “spooky.”
 
-### 6. [[Blog/Nerdish Mom Archives/2019/2019-10-06-f-is-for-frankenstein-or-the-girl-who-invented-sci-fi\|Frankenstein's Lab]]
+### 6. [[Blog/Nerdish Mom Archives/2019/F is for Frankenstein\|Frankenstein's Lab]]
 
 A great opportunity for science experiments!
 
-### 7. [[Blog/Nerdish Mom Archives/2019/2019-10-07-g-is-for-the-great-pumpkin\|Great Pumpkin]]
+### 7. [[Blog/Nerdish Mom Archives/2019/G is for the Great Pumpkin\|Great Pumpkin]]
 
-### 8. [[Blog/Nerdish Mom Archives/2019/2019-10-09-h-is-for-haunted-house-in-a-box\|Haunted House]]
+### 8. [[Blog/Nerdish Mom Archives/2019/H is for Haunted House\|Haunted House]]
 
 Like a blanket fort, but with a lot more spoopy! If you don’t have the space for building your own haunted house, consider either a diorama or at least cooking up some eyeballs (peeled grapes) and entrails 
 
-### 9. [[Blog/Nerdish Mom Archives/2019/2019-10-10-i-is-for-igors-ichor-and-innards\|Igor and Ichor]]
+### 9. [[Blog/Nerdish Mom Archives/2019/I is for Igor's Ichor\|Igor and Ichor]]
 
 Not that I need an opportunity to make slime, but I’ll share my favorite type with you, and why!
 
-### 10. [[Blog/Nerdish Mom Archives/2019/2019-10-11-j-is-for-jack-o-lantern\|Jack-o-Lantern]] (printable)
+### 10. [[Blog/Nerdish Mom Archives/2019/J is for Jack-o-Lantern\|Jack-o-Lantern]] (printable)
 
-### 11. [[Blog/Nerdish Mom Archives/2019/2019-10-12-k-is-for-karaoke-a-halloween-sing-along\|Karaoke]](Spotify playlist) 
+### 11. [[Blog/Nerdish Mom Archives/2019/K is for Karaoke\|Karaoke]](Spotify playlist) 
 
-### 12. [[Blog/Nerdish Mom Archives/2019/2019-10-14-l-is-for-the-legend-of-sleepy-hollow\|Legend of Sleepy Hollow]]
+### 12. [[Blog/Nerdish Mom Archives/2019/L is for the Legend of Sleepy Hollow\|Legend of Sleepy Hollow]]
 
-### 13. [[Blog/Nerdish Mom Archives/2019/2019-10-15-m-is-for-masquerade-n-is-for-noire\|Masquerade]]
+### 13. [[Blog/Nerdish Mom Archives/2019/M is for Masquerade\|Masquerade]]
 
 Make your own masks, either in preparation for Halloween or to host a home masquerade
 
-### 14. [[Blog/Nerdish Mom Archives/2019/2019-10-17-n-is-for-ennui\|Nightmare Before Christmas]]
+### 14. [[Blog/Nerdish Mom Archives/2019/N is for the Nightmare Before Christmas\|Nightmare Before Christmas]]
 
-### 15. [[Blog/Nerdish Mom Archives/2019/2019-10-18-o-is-for-october-and-other-oddities\|October]]
+### 15. [[Blog/Nerdish Mom Archives/2019/O is for October\|October]]
 
 A chance to cover current events or other happenings this month (no, not Columbus day)
 
-### 16. [[Blog/Nerdish Mom Archives/2019/2019-10-19-p-is-for-the-pumpkin-patch\|Pumpkin Patch]]
+### 16. [[Blog/Nerdish Mom Archives/2019/P is for the Pumpkin Patch\|Pumpkin Patch]]
 
 If you have a pumpkin patch nearby then get out and go! Otherwise visit the grocery store to pick one to carve. Since the weather in my city is looking like it might want to stay in the 90s well into October, the actual carving may want to wait until closer to trick-or-treating
 
-### 17. [Quark](https://www.chaoticorganized.com/2019/10/20/q-is-for-quark/)
+### 17. [[Blog/Nerdish Mom Archives/2019/Q is for Quark\|Q is for Quark]]
 
-### 18. [[Blog/Nerdish Mom Archives/2019/2019-10-21-r-is-for-recipes\|Recipes]]
+### 18. [[Blog/Nerdish Mom Archives/2019/R is for Recipes\|Recipes]]
 
 pumpkin.
 
-### 19. [[Blog/Nerdish Mom Archives/2019/2019-10-23-s-is-for-samhain\|Samhain]]
+### 19. [[Blog/Nerdish Mom Archives/2019/S is for Samhain\|Samhain]]
 
-### 20. [[Blog/Nerdish Mom Archives/2019/2019-10-24-t-is-for-trick-or-treating\|Trick or Treat]]
+### 20. [[Blog/Nerdish Mom Archives/2019/T is for Trick-or-Treating\|Trick or Treat]]
 
 Learn the Origin of trick-or-treating and turn it into an at-home game! This is especially helpful if you have young kids who don’t really understand the concept yet.  
 
-### 21. [[Blog/Nerdish Mom Archives/2019/2019-10-25-u-is-for-unicorns\|Unicorns]]
+### 21. [[Blog/Nerdish Mom Archives/2019/U is for Unicorns\|Unicorns]]
 
-### 22. [[Blog/Nerdish Mom Archives/2019/2019-10-26-v-is-for-vampires\|Vampires]]
+### 22. [[Blog/Nerdish Mom Archives/2019/V is for Vampires\|Vampires]]
 
 Did you know there’s some speculation that the concept of vampires may have originated from the symptoms of rabies? No? What else don’t you know about vampires? Let’s find out together!
 
-### 23. [[Blog/Nerdish Mom Archives/2019/2019-10-27-w-is-for-werewolves\|Werewolves]]
+### 23. [[Blog/Nerdish Mom Archives/2019/W is for Werewolves\|Werewolves]]
 
-### 24. [[Blog/Nerdish Mom Archives/2019/2019-10-28-x-is-for-x-rays\|X-rays]]
+### 24. [[Blog/Nerdish Mom Archives/2019/X is for X-Rays\|X-rays]]
 
 Look at skeletons and learn some science!
 
