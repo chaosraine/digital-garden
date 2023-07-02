@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/ex-gifted-podcast/2021/2021-03-16-ex-gifted-trailer/","title":"Ex-Gifted Trailer","noteIcon":""}
+{"dg-publish":true,"permalink":"/ex-gifted-podcast/2021/2021-03-16-ex-gifted-trailer/","title":"Ex-Gifted Trailer","noteIcon":"","created":"","updated":""}
 ---
 
 
