@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/home/","title":"Chaotic Organized","tags":["gardenEntry"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/home/","title":"Chaotic Organized","contentClasses":"dashboard","tags":["gardenEntry"],"noteIcon":"","created":"","updated":""}
 ---
 
 
