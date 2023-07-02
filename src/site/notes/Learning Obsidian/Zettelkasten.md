@@ -1,4 +1,4 @@
 ---
-{"dg-publish":true,"permalink":"/learning-obsidian/zettelkasten/","noteIcon":""}
+{"dg-publish":true,"permalink":"/learning-obsidian/zettelkasten/","noteIcon":"","created":"","updated":""}
 ---
 
