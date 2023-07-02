@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"dg-permalink":"nanowrimo","permalink":"/nanowrimo/","title":"NaNoWriMo","noteIcon":""}
+{"dg-publish":true,"dg-permalink":"nanowrimo","permalink":"/nanowrimo/","title":"NaNoWriMo","noteIcon":"","created":"","updated":""}
 ---
 
 
