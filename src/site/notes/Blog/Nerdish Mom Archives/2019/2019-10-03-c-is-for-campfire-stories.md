@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-03-c-is-for-campfire-stories/","title":"Day 3 - C is for Campfire Stories","noteIcon":""}
+{"dg-publish":true,"permalink":"/blog/nerdish-mom-archives/2019/2019-10-03-c-is-for-campfire-stories/","title":"C is for Campfire Stories","noteIcon":""}
 ---
 
 
