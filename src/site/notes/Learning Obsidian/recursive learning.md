@@ -1,4 +1,4 @@
 ---
-{"dg-publish":true,"permalink":"/learning-obsidian/recursive-learning/","noteIcon":""}
+{"dg-publish":true,"permalink":"/learning-obsidian/recursive-learning/","noteIcon":"","created":"","updated":""}
 ---
 
