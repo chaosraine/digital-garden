@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/learning-obsidian/formatting/","noteIcon":""}
+{"dg-publish":true,"permalink":"/learning-obsidian/formatting/","noteIcon":"","created":"","updated":""}
 ---
 
 How to format [[Learning Obsidian/text\|text]] in [[Learning Obsidian/Obsidian\|Obsidian]]
